@@ -1,1 +1,1 @@
-KEYÉçÓÎÏ·¡¶Little busters¡·ÒÆÖ²µ½OnscripterÆ½Ì¨²¢¶ÀÁ¢ºº»¯µÄ³¢ÊÔ¡£
+ï»¿KEYç¤¾æ¸¸æˆã€ŠLittle bustersã€‹ç§»æ¤åˆ°Onscripterå¹³å°å¹¶ç‹¬ç«‹æ±‰åŒ–çš„å°è¯•ã€‚
