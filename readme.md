@@ -1,4 +1,4 @@
-﻿KEY社游戏《Little busters》移植到Onscripter平台并独立汉化的尝试。
+﻿
 ;シナリオシステム作成 こばと（Aria Furukawa）
 ;HPはwww.kobato.us
 ;;;;;;;;;;;;;;;;LICENCE;;;;;;;;;;;;;;;;;
